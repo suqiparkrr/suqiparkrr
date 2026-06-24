@@ -25,11 +25,11 @@
 <p align="center"> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/ffec4873d14c364bc6995fdddbb20969%20(1).jpg" height=500> </p>
 <div align="center">
   
-  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/43d265f553a7f7e48efd776b34bd9c4e.png" width=360>](https://rentry.co/suqiparkr-slingshot)
+  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/43d265f553a7f7e48efd776b34bd9c4e.png" width=180>](https://rentry.co/suqiparkr-slingshot)
   
   <br>
   
-  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/a28d7ee36bac7d00b221677d244db9b5.png" width=180>](https://suqiparkrr.tumblr.com/)
+  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/a28d7ee36bac7d00b221677d244db9b5.png" width=90>](https://suqiparkrr.tumblr.com/)
   
 </div>
         </div>
