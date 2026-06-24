@@ -2,6 +2,14 @@
 
 <p align="center"> SUQI $${\color{#2D1353}—}$$ MiMi !!
 
+<div align="center"> 
+  
+  $${\color{#802785}ALTER \space IN \space THE \space FORGET-ME-NOT \space SYSTEM}$$
+  
+  <img src="https://file.garden/Z1wsLskJxRiY2oPJ/pngtree-beautiful-forget-me-not-flower-isolated-on-transparent-background-png-image_15769004.png" height=30>
+
+</div>
+<br>
 <p align="center"> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/ffec4873d14c364bc6995fdddbb20969%20(1).jpg" height=360> </p>
 <div align="center">
   
