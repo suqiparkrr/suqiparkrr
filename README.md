@@ -9,6 +9,6 @@
   
   <br>
   
-  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/a28d7ee36bac7d00b221677d244db9b5.png" width=360>](https://suqiparkrr.tumblr.com/)
+  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/a28d7ee36bac7d00b221677d244db9b5.png" width=180>](https://suqiparkrr.tumblr.com/)
   
 </div>
