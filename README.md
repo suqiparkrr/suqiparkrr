@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/New%20Project%20(14).png" width=500> </p>
+<p align="center"> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/New%20Project%20(14).png" width=750> </p>
 <div align="center">
   
   <table>
@@ -38,4 +38,4 @@
   </table>
 
 </div>
-<p align="center"> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/New%20Project%20(15).png" width=500> </p>
+<p align="center"> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/New%20Project%20(15).png" width=750> </p>
