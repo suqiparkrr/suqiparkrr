@@ -22,7 +22,7 @@
   
   $${\color{#802785}ALTER \space IN \space THE \space FORGET-ME-NOT \space SYSTEM}$$
   
-  <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125223.png" height=30>
+  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125223.png" height=30>](https://rentry.co/theforgetmenotsystem)
 
 </div>
 <br>
