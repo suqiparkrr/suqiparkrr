@@ -36,6 +36,10 @@
   [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/a28d7ee36bac7d00b221677d244db9b5.png" width=90>](https://suqiparkrr.tumblr.com/)
 
   <br>
+
+  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/73417fde44e8ccaab7168cf3b6ea7177.png" width=90>](https://suqiparkrr.atabook.org/)
+
+  <br>
   <br>
 
   [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" height=30>](https://rentry.co/theforgetmenotsystem) _[ONE](https://github.com/dr-vanta)_ $${\color{#2D1353}—}$$ **[TWO](https://github.com/DRmRETRO)** [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260628130438.png" height=30>](https://rentry.co/theforgetmenotsystem)
