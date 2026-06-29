@@ -38,7 +38,7 @@
   <br>
   <br>
 
-  <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" height=30> _[ONE](https://github.com/dr-vanta)_ $${\color{#2D1353}—}$$ **[TWO](https://github.com/DRmRETRO)** <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260628130438.png" height=30>
+  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" height=30>](https://rentry.co/theforgetmenotsystem) _[ONE](https://github.com/dr-vanta)_ $${\color{#2D1353}—}$$ **[TWO](https://github.com/DRmRETRO)** [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260628130438.png" height=30>](https://rentry.co/theforgetmenotsystem)
 </div>
         </div>
       </td>
