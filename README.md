@@ -42,7 +42,7 @@
   <br>
   <br>
 
-  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" height=30>](https://rentry.co/theforgetmenotsystem) _[ONE](https://github.com/dr-vanta)_ $${\color{#2D1353}—}$$ **[TWO](https://github.com/DRmRETRO)** [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260628130438.png" height=30>](https://rentry.co/theforgetmenotsystem) ~~[THREE](https://github.com/a-dead-plate)~~
+  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" height=30>](https://rentry.co/theforgetmenotsystem) _[ONE](https://github.com/dr-vanta)_ $${\color{#2D1353}—}$$ **[TWO](https://github.com/DRmRETRO)** [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260628130438.png" height=30>](https://rentry.co/theforgetmenotsystem) $${\color{#A664A4}—}$$ ~~[THREE](https://github.com/a-dead-plate)~~
 </div>
         </div>
       </td>
