@@ -29,7 +29,7 @@
 <p align="center"> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1511_20260802071036.jpg" height=500> </p>
 <div align="center">
   
-  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/43d265f553a7f7e48efd776b34bd9c4e.png" width=180>](https://rentry.co/suqiparkr-slingshot)
+  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/43d265f553a7f7e48efd776b34bd9c4e.png" width=180>](https://pronouns.cc/@suqiparkrr)
   
   <br>
   
