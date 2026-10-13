@@ -21,9 +21,6 @@
 <div align="center"> 
   
   $${\color{#B58285}ALTER \space IN \space THE \space FORGET-ME-NOT \space GARDEN}$$
-  
-  <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125223.png" height=30>
-
 </div>
 <br>
 <p align="center"> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled28_20260925234136.jpg" height=500> </p>
@@ -40,9 +37,11 @@
   [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/73417fde44e8ccaab7168cf3b6ea7177.png" width=90>](https://suqiparkrr.atabook.org/)
 
   <br>
+
+  <a href="https://github.com/the-forget-me-not-garden">WHOLE SYSTEM HERE!</a>  <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125223.png" height=30>
+
   <br>
 
-  [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" height=30>](https://rentry.co/theforgetmenotsystem) _[ONE](https://github.com/dr-vanta)_ $${\color{#C58F87}—}$$ **[TWO](https://github.com/DRmRETRO)** [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260628130438.png" height=30>](https://rentry.co/theforgetmenotsystem) $${\color{#B58285}—}$$ ~~[THREE](https://github.com/a-dead-plate)~~
 </div>
         </div>
       </td>
